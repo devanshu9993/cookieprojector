@@ -51,7 +51,7 @@ We’ve reviewed several projectors that are perfect for cookie decorators. Here
 ## Stay Connected
 For more updates, tips, and projector recommendations, follow us on social media and sign up for our newsletter!
 
-- **Instagram**: [@CookieProjector](https://instagram.com/CookieProjector)
+- **Instagram**: [@CookieProjector](https://instagram.com/Cookie_Projector)
 
 ## Contact Us
 If you have any questions or need advice on choosing the right projector for your cookie decorating needs, feel free to reach out:
